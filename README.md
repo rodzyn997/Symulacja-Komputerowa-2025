@@ -1,0 +1,1 @@
+# Symulacja-Komputerowa-2025
